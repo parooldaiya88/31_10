@@ -1,5 +1,17 @@
-I created this parul branch
+I created this balraj branch
 i am going to do some changes right  now
+
 today is holiday but still practicing
 trying to achieve yolo
 next badge quickdraw
+today is monday but still practicing
+trying to achieve yolo
+how are you now
+final test
+
+how are you now
+
+stilling struggling to get badge
+
+i got it
+
