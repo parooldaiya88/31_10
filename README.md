@@ -4,3 +4,8 @@ today is monday but still practicing
 trying to achieve yolo
 how are you now
 final test
+
+how are you now
+
+stilling struggling to get badge
+
